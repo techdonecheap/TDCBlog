@@ -33,7 +33,7 @@ Dana didn't just stop at fiery words. He called in Craig Borsari, UFC’s EVP of
 
 This isn't Dana's first rodeo with corporate clashes. He recalled a time a major sponsor tried to censor his political support and got a similar treatment.
 
-[YouTube](https://www.youtube.com/watch?v=O5oC9iYn6bI)
+[Dont miss the video i clipped of the greatest part!! ](https://www.youtube.com/watch?v=O5oC9iYn6bI)
 
 ### **The Aftermath**
 
