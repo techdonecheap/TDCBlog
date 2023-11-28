@@ -33,6 +33,8 @@ Dana didn't just stop at fiery words. He called in Craig Borsari, UFC’s EVP of
 
 This isn't Dana's first rodeo with corporate clashes. He recalled a time a major sponsor tried to censor his political support and got a similar treatment.
 
+[Dont miss the video i clipped of the greatest part!! ](https://www.youtube.com/watch?v=O5oC9iYn6bI)
+
 ### **The Aftermath**
 
 Fast forward to the present: UFC's gym is now a Peloton-free zone. And Barry McCarthy? Well, he's probably rethinking that statement about everyone wanting to partner with Peloton, especially after Dana's fiery retort:
