@@ -10,7 +10,7 @@ tags:
 categories:
   - - News
   - - Tech Stuff
-cover: https://imgur.com/FWTgDyv
+cover: https://i.imgur.com/FWTgDyv.jpg
 ---
 # Rethinking Our Approach to Chatbot Conversations
 
