@@ -1,5 +1,5 @@
 ---
-title: Sparks of Controversy: The Unexplained Fire at Nikola Tesla's Final Laboratory
+title: Sparks of Controversy The Unexplained Fire at Nikola Tesla's Final Laboratory
 feature: true
 date: 2023-11-28 19:30:56
 tags:
@@ -9,6 +9,7 @@ categories:
 cover: https://riverheadnewsreview.timesreview.com/files/Unknown-37-600x450.jpeg
 ---
 <a href="https://imgur.com/mXeiOlJ"><img src="https://i.imgur.com/mXeiOlJ.jpg" title="source: TinFoilHat.com" /></a>
+
 The Scene of the Blaze: Tesla Science Center at Wardenclyffe
 This historic site in Shoreham, previously known as Wardenclyffe, is more than just a building; it's a monument to human ingenuity. It's where Nikola Tesla, the Serbian-American inventor, worked on his groundbreaking experiments. Picture this: a laboratory brimming with buzzing electricity, the air crackling with potential, a true playground for one of history's greatest minds.
 
